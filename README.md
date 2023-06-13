@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @davidaziz00
+- 👋 Hi, I’m David Aziz,22, Egyptian
 - 👀 I graduated from RMIT, Melbourne, AUS
 - 🌱 I’m currently working on several projects 
 - 💞️ I’m looking to collaborate on VR
